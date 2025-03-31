@@ -11,4 +11,4 @@
 💼 LinkedIn: [linkedin.com/in/agampreet-singh1](https://www.linkedin.com/in/agampreet-singh1/)  
 🌐 Portfolio: [Personal Website](https://personal-website-blue-six-65.vercel.app)  
 
-Always open to **tech discussions** and **collaboration opportunities**! 🚀  
+Always open to **tech discussions** and **collaboration opportunities**! 😄 
