@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Agampreet Singh!  
+# 👋 Hi, I'm Agampreet (Agam) Singh!  
 
 🎓 I’m a **4th-year Computer Science student at the University of Washington**.  
 
